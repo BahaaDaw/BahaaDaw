@@ -20,6 +20,46 @@ Accomplished HR Manager with over 13 years of experience across diverse industri
 - **Compliance & Administration**: HR Policy Formulation, Legal Compliance, Document Management
 - **Software Proficiency**: Advanced MS Office (Excel, Word, PowerPoint), SharePoint
 - **Strategic Planning**: Organizational Design, Change Management
+ 
+---
+
+### 📈 Achievements
+
+- Consistently met or exceeded monthly and yearly hiring targets.
+- Implemented a commission structure that boosted the team's performance.
+- Managed a six-month probation period policy aligned with UAE labor laws.
+
+---
+
+### 🌐 Technical Skills
+
+- **Applicant Tracking Systems (ATS)**
+- **HR Management Software**: SAP, Workday
+- **Microsoft Office Suite**
+- **GitHub**: For collaborative projects and documentation
+
+---
+
+### 📧 Contact Information
+
+- **Email**: bahaadaw@yahoo.com
+  - **LinkedIn**: [LinkedIn Profile](www.linkedin.com/in/bahaa-daw-048a4583) 
+- **Website**: [Bahaa Daw](http://(https://github.com/BahaaDaw))
+
+---
+
+### 🤝 Professional Attributes
+
+- 13 years of experience in HR Management
+- 5 years of experience in bulk hiring
+- Specialized in IT, programming, construction, and mall management industries
+- UAE Residence Visa / Husband Sponsored
+
+---
+
+### 📈 Career Goals
+
+Seeking opportunities to leverage my HR expertise to drive organizational success, optimize talent acquisition strategies, and lead teams in dynamic environments.
 
 ---
 
@@ -78,42 +118,3 @@ Accomplished HR Manager with over 13 years of experience across diverse industri
 - **English**: Advanced
 ---
 
-### 📈 Achievements
-
-- Consistently met or exceeded monthly and yearly hiring targets.
-- Implemented a commission structure that boosted the team's performance.
-- Managed a six-month probation period policy aligned with UAE labor laws.
-
----
-
-### 🌐 Technical Skills
-
-- **Applicant Tracking Systems (ATS)**
-- **HR Management Software**: SAP, Workday
-- **Microsoft Office Suite**
-- **GitHub**: For collaborative projects and documentation
-
----
-
-### 📧 Contact Information
-
-- **Email**: bahaadaw@yahoo.com
-  - **LinkedIn**: [LinkedIn Profile](www.linkedin.com/in/bahaa-daw-048a4583) 
-- **Website**: [Bahaa Daw](http://(https://github.com/BahaaDaw))
-
----
-
-### 🤝 Professional Attributes
-
-- 13 years of experience in HR Management
-- 5 years of experience in bulk hiring
-- Specialized in IT, programming, construction, and mall management industries
-- UAE Residence Visa / Husband Sponsored
-
----
-
-### 📈 Career Goals
-
-Seeking opportunities to leverage my HR expertise to drive organizational success, optimize talent acquisition strategies, and lead teams in dynamic environments.
-
----
