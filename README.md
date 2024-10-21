@@ -70,7 +70,7 @@ University of Sharjah, UAE
 
 - **Email**: Hr@lateston.ae
 - **LinkedIn**: [LinkedIn Profile](www.linkedin.com/in/bahaa-daw-048a4583)
-- **Website**: [Bahaa Daw]((https://github.com/BahaaDaw/My-CV-.git))
+- **Website**: [Bahaa Daw](https://github.com/BahaaDaw/My-CV-.git)
 
 ---
 
