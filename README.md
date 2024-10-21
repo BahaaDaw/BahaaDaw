@@ -108,4 +108,3 @@ Accomplished HR Manager with over 13 years of experience across diverse industri
 - **Arabic**: Native
 - **English**: Advanced
 ---
-
