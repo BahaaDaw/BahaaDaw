@@ -1,4 +1,4 @@
-# Bahaa Daw - Group HR Manager
+# Bahaa Daw - HR Manager
 
 ## 📞 Contact Information
 - **Phone**: +971 55 480 8961
