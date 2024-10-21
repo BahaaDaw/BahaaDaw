@@ -51,8 +51,7 @@ Accomplished HR Manager with over 13 years of experience across diverse industri
 - 13 years of experience in HR Management
 - 5 years of experience in bulk hiring
 - Specialized in IT, programming, construction, and mall management industries
-- UAE Residence Visa / Husband Sponsored
-
+  
 ---
 
 ## 💼 Professional Experience
