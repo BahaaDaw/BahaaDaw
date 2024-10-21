@@ -8,6 +8,12 @@
 
 ---
 
+### 📈 Career Goals
+
+Seeking opportunities to leverage my HR expertise to drive organizational success, optimize talent acquisition strategies, and lead teams in dynamic environments.
+
+---
+
 ## 🏆 Professional Summary
 Accomplished HR Manager with over 13 years of experience across diverse industries, including hospitality, retail, and construction. Proven expertise in aligning HR strategies with organizational goals to enhance recruitment processes, boost employee engagement, and reduce turnover. Skilled in performance management, talent development, and HRIS systems. Fluent in English and Arabic, with a passion for driving sustainable growth and fostering high-performing teams.
 
@@ -40,26 +46,12 @@ Accomplished HR Manager with over 13 years of experience across diverse industri
 
 ---
 
-### 📧 Contact Information
-
-- **Email**: bahaadaw@yahoo.com
-  - **LinkedIn**: [LinkedIn Profile](www.linkedin.com/in/bahaa-daw-048a4583) 
-- **Website**: [Bahaa Daw](http://(https://github.com/BahaaDaw))
-
----
-
 ### 🤝 Professional Attributes
 
 - 13 years of experience in HR Management
 - 5 years of experience in bulk hiring
 - Specialized in IT, programming, construction, and mall management industries
 - UAE Residence Visa / Husband Sponsored
-
----
-
-### 📈 Career Goals
-
-Seeking opportunities to leverage my HR expertise to drive organizational success, optimize talent acquisition strategies, and lead teams in dynamic environments.
 
 ---
 
