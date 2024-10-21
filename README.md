@@ -88,4 +88,3 @@ University of Sharjah, UAE
 Seeking opportunities to leverage my HR expertise to drive organizational success, optimize talent acquisition strategies, and lead teams in dynamic environments.
 
 ---
-
