@@ -69,8 +69,8 @@ University of Sharjah, UAE
 ### 📧 Contact Information
 
 - **Email**: Hr@lateston.ae
-- **LinkedIn**: [LinkedIn Profile](https://linkedin.com/in/your-profile) *(Replace with your actual LinkedIn URL)*
-- **Website**: [LatestOn LLC](http://lateston.ae/)
+- **LinkedIn**: [LinkedIn Profile](www.linkedin.com/in/bahaa-daw-048a4583)
+- **Website**: [Bahaa Daw]((https://github.com/BahaaDaw/My-CV-.git))
 
 ---
 
